@@ -34,7 +34,7 @@ Create a gym guy who uses steroids
 Create a guy who is normally muscular 
 
 ## 🚀 Resultados
-
+(https://github.com/che36/lab-natty-or-not/blob/main/Default_A_muscular_gym_enthusiast_rendered_in_vivid_oil_paints_0.jpg)
 
 
 
