@@ -35,9 +35,9 @@ Create a guy who is normally muscular
 
 ## 🚀 Resultados
 
+![Default_A_muscular_gym_enthusiast_rendered_in_vivid_oil_paints_0](https://github.com/user-attachments/assets/486c5f86-b2a8-46b4-955d-73548887a2ed)
 
-![Default_a_gym_guy_rendered_in_highly_detailed_digital_art_show_1](https://github.com/user-attachments/assets/d1167323-d2a6-412d-812c-191e0a589ccf)
-![Default_A_muscular_gym_enthusiast_rendered_in_vivid_oil_paints_0](https://github.com/user-attachments/assets/b7aec4ba-81d0-49b1-a5cb-470f78166789)
+![Default_a_gym_guy_rendered_in_highly_detailed_digital_art_show_1](https://github.com/user-attachments/assets/ad3d978e-7ecb-45e2-bd22-36d22193acc7)
 
 
 ### Exemplos e Insigths
